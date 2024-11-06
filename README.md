@@ -1,3 +1,4 @@
+![_bg4](https://github.com/user-attachments/assets/50853392-3b6d-47fa-960b-2990a1cc178f)
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://mee6.xyz/de/i/lYl6pLgxWa ) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/germanrednecksgaming) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/dixielandplay) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@daryldixonmate_tv7035) 
